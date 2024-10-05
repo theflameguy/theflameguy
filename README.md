@@ -1,4 +1,4 @@
-## Hey, I am `theflameguy`<sub><sub><img src="https://i.gifer.com/5Mz4.gif" width="25"/><sub><sub> 
+## Hey, I am `theflameguy`<picture><sub><sub><img src="https://i.gifer.com/5Mz4.gif" width="25"/><sub><sub></picture>
 
 <!-- <sup><img src="https://i.gifer.com/Dti.gif" width="28"/><sup> -->
 
